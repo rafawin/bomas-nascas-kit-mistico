@@ -1,4 +1,4 @@
-# 🌙 Bomas Nascas — Kit Nail Artist Místico
+# 🌙 Pulo Do Gato — Kit Nail Artist Místico
 
 **Onde cada unha é um feitiço. Magia para profissionais.**
 
